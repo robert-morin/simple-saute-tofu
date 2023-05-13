@@ -33,6 +33,6 @@
 
 10. Mettre le feu à 7 ou 8 et faire cuire en remuant de temps en temps pour que ça ne colle pas, plus souvent au début.
 
-11. Faudrait que je time combien ça prends de temps, mais je fais cuire jusqu'à ce qu'il commence à y avoir une petite croûte de doré sur les blocs de tofu. On peut cuire plus ou moins longtemps, selon qu'on préfère la recette plus al dente ou bien cuit, ou bien à quel point on a faim.
+11. Je fais habituellement cuire jusqu'à ce qu'il commence à y avoir une petite croûte de doré sur les blocs de tofu, ce qui prend environ 20 minutes pour moi. On peut cuire plus ou moins longtemps, selon qu'on préfère la recette plus al dente ou bien cuit, ou bien à quel point on a faim.
 
 12. Manger. Avec des baguettes pour un point boni.
